@@ -1,0 +1,4 @@
+baseURL = "/"
+languageCode = "da-dk"
+title = "Simone Jakobsen"
+theme = "hugo-paper"

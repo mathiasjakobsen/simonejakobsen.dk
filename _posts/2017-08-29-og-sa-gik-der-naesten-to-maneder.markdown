@@ -23,23 +23,23 @@ Greg er meget anderledes end mig, men jeg elsker hans personlighed og drive. Han
 Mia og Sadie er tvillinger, men minder på ingen måde om hinanden - hverken på deres udseende eller i deres personligheder. Sadie er en rigtig pige og hun er rigtig sød til at hjælpe til og Mia er mere drenget/sporty og vil egentlig bare gerne have det sjovt. De er begge to fantastiske, de har humor, er fjollede og de betyder allerede rigtig meget for mig! Når det er sagt, kan de også begge være en udfordring, og det mærkes stort set hver dag! Fik jeg sagt, at de er otte år? 
 
 Sadie og jeg på pigernes første skoledag den 21. august
-![IMG_0585](/images/2017/08/IMG_0585.JPG)
+![IMG_0585](/simonejakobsen.dk/images/2017/08/IMG_0585.JPG)
 
 ...og Mia og jeg på deres første skoledag
-![IMG_0590](/images/2017/08/IMG_0590.JPG)
+![IMG_0590](/simonejakobsen.dk/images/2017/08/IMG_0590.JPG)
 
 De havde pyntet deres hus med det danske flag, den dag jeg ankom - det var en vanvittig dejlig følelse at de havde tænkt denne tanke
-![IMG_0042-2](/images/2017/08/IMG_0042-2.JPG)
+![IMG_0042-2](/simonejakobsen.dk/images/2017/08/IMG_0042-2.JPG)
 
 Køkkenet er generelt det største samlingspunkt i det amerikanske hjem, så her tilbringer vi rigtig meget tid
-![IMG_0184](/images/2017/08/IMG_0184.JPG)
+![IMG_0184](/simonejakobsen.dk/images/2017/08/IMG_0184.JPG)
 
 Mit værelse er i kælderen, hvilket er ufattelig rart her i sommeren - der er nemlig dejlig køligt! Jeg synes jeg har et skønt værelse (savner måske en større seng, men hvad pokker) og jeg har mit eget (store) badeværelse, som jeg kun deler med andre, hvis vi har overnattende gæster i huset! 
-![IMG_0185](/images/2017/08/IMG_0185.JPG)
-![IMG_0186](/images/2017/08/IMG_0186.JPG)
+![IMG_0185](/simonejakobsen.dk/images/2017/08/IMG_0185.JPG)
+![IMG_0186](/simonejakobsen.dk/images/2017/08/IMG_0186.JPG)
 
 Ej at forglemme, så har jeg verdens dejligste værstshund, Poncho. Han er min tro følgesvend og vi elsker at gå ture sammen. Indtil videre har vi godt nok kun gået den samme rute, da jeg er bange for at fare vild i stisystemet, HAHA!
-![IMG_0189](/images/2017/08/IMG_0189.JPG)
+![IMG_0189](/simonejakobsen.dk/images/2017/08/IMG_0189.JPG)
 
 Vi har egentlig også en fisk, men den har jeg endnu ikke fået det helt vilde forhold til - det kommer nok!
 
@@ -48,4 +48,4 @@ Hold øje, hvis I har lyst - jeg har allerede mange flere oplevelser jeg gerne v
 
 XO, Simone
 
-![Hjerte](/images/2017/08/Hjerte.jpg)
+![Hjerte](/simonejakobsen.dk/images/2017/08/Hjerte.jpg)

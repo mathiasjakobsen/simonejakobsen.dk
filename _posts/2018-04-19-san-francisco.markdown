@@ -22,70 +22,70 @@ Jeg smuttede forbi mit hostel (ja, jeg boede på hostel - det er 3. gang, og nej
 
 Udsigten fra mit hostel var fantastisk, så jeg startede egentlig bare med at gå en lang tur. San Francisco er en virkelig fin havneby.
 
-![IMG_3035](/images/2018/04/IMG_3035.JPG)
+![IMG_3035](/simonejakobsen.dk/images/2018/04/IMG_3035.JPG)
 
-![IMG_3037](/images/2018/04/IMG_3037.JPG)
+![IMG_3037](/simonejakobsen.dk/images/2018/04/IMG_3037.JPG)
  
-![IMG_2904](/images/2018/04/IMG_2904.JPG)
+![IMG_2904](/simonejakobsen.dk/images/2018/04/IMG_2904.JPG)
 
-![IMG_2906](/images/2018/04/IMG_2906.JPG)
+![IMG_2906](/simonejakobsen.dk/images/2018/04/IMG_2906.JPG)
 
 Den lille ø man kan se er Alcatraz, som altså var et fængsel tilbage i 1943-1963. Blandt andet har Al Capone siddet fængslet på øen. Idag er det en turist attraktion og jeg ville utrolig gerne have været derude, men alle billetter var udsolgt!
-![IMG_2915](/images/2018/04/IMG_2915.JPG)
+![IMG_2915](/simonejakobsen.dk/images/2018/04/IMG_2915.JPG)
 
 Golden Gate Bridge 
-![IMG_2913](/images/2018/04/IMG_2913.JPG)
+![IMG_2913](/simonejakobsen.dk/images/2018/04/IMG_2913.JPG)
 
 Mit næste stop var "Painted Ladies", som er en lille række huse i fine farver og en helt bestemt stil. De er flere gange blevet brugt i serier og film
 **#Hvornår kan jeg flytte ind?**
-![IMG_2939](/images/2018/04/IMG_2939.JPG)
+![IMG_2939](/simonejakobsen.dk/images/2018/04/IMG_2939.JPG)
 
 Generelt blev jeg smaskforelsket i den stil der var at se i San Francisco. Alle huse og bygninger havde de fineste farver og detaljer og jeg er slet ikke i tvivl om, at byen har meget historie. 
 
-![IMG_2924](/images/2018/04/IMG_2924.JPG)
+![IMG_2924](/simonejakobsen.dk/images/2018/04/IMG_2924.JPG)
 
-![IMG_2931](/images/2018/04/IMG_2931.JPG)
+![IMG_2931](/simonejakobsen.dk/images/2018/04/IMG_2931.JPG)
 
-![IMG_2929](/images/2018/04/IMG_2929.JPG)
+![IMG_2929](/simonejakobsen.dk/images/2018/04/IMG_2929.JPG)
 
-![IMG_2951](/images/2018/04/IMG_2951.JPG)
+![IMG_2951](/simonejakobsen.dk/images/2018/04/IMG_2951.JPG)
 
-![IMG_2976](/images/2018/04/IMG_2976.JPG)
+![IMG_2976](/simonejakobsen.dk/images/2018/04/IMG_2976.JPG)
 
-![IMG_2977](/images/2018/04/IMG_2977.JPG)
+![IMG_2977](/simonejakobsen.dk/images/2018/04/IMG_2977.JPG)
 
 Jeg tog et hurtigt smut forbi Haight-Ashbury nabolaget, som er kendt for at være området, hvor "hippie" tiden rigtig startede. Bandet "Grateful Dead" startede blandt andet i dette område. 
 
 Der var ikke umiddelbart så meget at komme efter, men området bar præg af denne kultur, både i form af arkitektur og de mennesker man mødte på gaden.
 
-![IMG_2981](/images/2018/04/IMG_2981.JPG)
+![IMG_2981](/simonejakobsen.dk/images/2018/04/IMG_2981.JPG)
 
 Næste stop var Fisherman's Wharf of Pier 39, som lå få meter fra univeristet jeg skulle være på, så jeg tog herhen, spiste frokost og tullede lidt rundt i det fantastiske vejr. 
 
 Der er bare en helt speciel stemning når man sådan går rundt i de små havneområder og der er musik og glade mennesker over det hele. Hurra for det! Om aftenen var der lyskæder hængende fra alle bygninger - simpelthen så charmerende. 
 
-![IMG_2994](/images/2018/04/IMG_2994.JPG)
+![IMG_2994](/simonejakobsen.dk/images/2018/04/IMG_2994.JPG)
 
-![IMG_2999](/images/2018/04/IMG_2999.JPG)
+![IMG_2999](/simonejakobsen.dk/images/2018/04/IMG_2999.JPG)
 
-![IMG_3010](/images/2018/04/IMG_3010.JPG)
+![IMG_3010](/simonejakobsen.dk/images/2018/04/IMG_3010.JPG)
 
-![IMG_3012](/images/2018/04/IMG_3012.JPG)
+![IMG_3012](/simonejakobsen.dk/images/2018/04/IMG_3012.JPG)
 
-![IMG_3014](/images/2018/04/IMG_3014.JPG)
+![IMG_3014](/simonejakobsen.dk/images/2018/04/IMG_3014.JPG)
 
 Fra Pier 39 var der også udsigt til en masse fine både, Alcatraz og så fandt jeg søløver! Jeg tror alligevel, at det var højdepunktet for min dag, haha!
 
-![IMG_3021](/images/2018/04/IMG_3021.JPG)
+![IMG_3021](/simonejakobsen.dk/images/2018/04/IMG_3021.JPG)
 
-![IMG_3027](/images/2018/04/IMG_3027.JPG)
+![IMG_3027](/simonejakobsen.dk/images/2018/04/IMG_3027.JPG)
 
-![IMG_3032](/images/2018/04/IMG_3032.JPG)
+![IMG_3032](/simonejakobsen.dk/images/2018/04/IMG_3032.JPG)
 
-![IMG_3015](/images/2018/04/IMG_3015.JPG)
+![IMG_3015](/simonejakobsen.dk/images/2018/04/IMG_3015.JPG)
 
 Specielt én af søløverne var jævnt tilfreds med omgivelserne, haha!
-![IMG_3019](/images/2018/04/IMG_3019.JPG)
+![IMG_3019](/simonejakobsen.dk/images/2018/04/IMG_3019.JPG)
 
 Om fredagen varede undervisningen fra kl. 15-21.30 og da jeg havde været oppe siden klokken 3 om natten var jeg godt brugt!
 
@@ -93,38 +93,38 @@ Om lørdagen havde vi "undervisning" fra kl. 9-20, men vi tilbragte blandt andet
 
 San Francisco Botanical Garden var et virkelig fint sted, så vores arbejdsomgivelser var helt i top!
 
-![IMG_3064](/images/2018/04/IMG_3064.JPG)
+![IMG_3064](/simonejakobsen.dk/images/2018/04/IMG_3064.JPG)
 
-![IMG_3059](/images/2018/04/IMG_3059.JPG)
+![IMG_3059](/simonejakobsen.dk/images/2018/04/IMG_3059.JPG)
 
-![IMG_3052](/images/2018/04/IMG_3052.JPG)
+![IMG_3052](/simonejakobsen.dk/images/2018/04/IMG_3052.JPG)
 
-![IMG_3051](/images/2018/04/IMG_3051.JPG)
+![IMG_3051](/simonejakobsen.dk/images/2018/04/IMG_3051.JPG)
 
-![IMG_3050](/images/2018/04/IMG_3050.JPG)
+![IMG_3050](/simonejakobsen.dk/images/2018/04/IMG_3050.JPG)
 
-![IMG_3048](/images/2018/04/IMG_3048.JPG)
+![IMG_3048](/simonejakobsen.dk/images/2018/04/IMG_3048.JPG)
 
-![IMG_3046](/images/2018/04/IMG_3046.JPG)
+![IMG_3046](/simonejakobsen.dk/images/2018/04/IMG_3046.JPG)
 
-![IMG_3056](/images/2018/04/IMG_3056.JPG)
+![IMG_3056](/simonejakobsen.dk/images/2018/04/IMG_3056.JPG)
 
 Jose fra Spanien, Victoriia fra Ukraine, jeg selv og Mette fra Danmark
 Jeg tror aldrig det har været så hyggeligt at pille ukrudt!
-![IMG_3142](/images/2018/04/IMG_3142.JPG)
+![IMG_3142](/simonejakobsen.dk/images/2018/04/IMG_3142.JPG)
 
 Efter frokost var vi en tur forbi deYoung museum, hvor vi egnetlig bare var en tur oppe på deres øverste etage, for at få et glimt af en fantastisk udsigt.
 Udenfor bygningen havde de et utal af palmer og jeg er helt tosset med dem - de er så fine og anderledes end hvad jeg er vant til, både hjemme fra Danmark, men også fra Colorado. 
 
-![IMG_3074](/images/2018/04/IMG_3074.JPG)
+![IMG_3074](/simonejakobsen.dk/images/2018/04/IMG_3074.JPG)
 
-![IMG_3073](/images/2018/04/IMG_3073.JPG)
+![IMG_3073](/simonejakobsen.dk/images/2018/04/IMG_3073.JPG)
 
-![IMG_3089](/images/2018/04/IMG_3089.JPG)
+![IMG_3089](/simonejakobsen.dk/images/2018/04/IMG_3089.JPG)
 
 Som man kan se i baggrunden på dette billede, er San Francisco en MEGET stejl by. 
 Det var fulstændig vanvittigt!
-![IMG_3087](/images/2018/04/IMG_3087.JPG)
+![IMG_3087](/simonejakobsen.dk/images/2018/04/IMG_3087.JPG)
 
 Vores næste stop var en af mine favorit akiviteter. 
 Vi besøgte nabolaget "Castro", hvor vi blandt andet var på et lille museum og på en guidet tur rundt i området. 
@@ -132,37 +132,37 @@ Vi besøgte nabolaget "Castro", hvor vi blandt andet var på et lille museum og 
 Castro District er et af de første "gay neighborhoods" i USA. 
 Området bærer så meget præg af denne kultur og det var helt vildt spændende at høre historien fra én, der har boet der i mere end 25 år og selv er del af det samfund. 
 
-![IMG_3093-1](/images/2018/04/IMG_3093-1.JPG)
+![IMG_3093-1](/simonejakobsen.dk/images/2018/04/IMG_3093-1.JPG)
 
-![IMG_3130](/images/2018/04/IMG_3130.JPG)
+![IMG_3130](/simonejakobsen.dk/images/2018/04/IMG_3130.JPG)
 
-![IMG_3096-1](/images/2018/04/IMG_3096-1.JPG)
+![IMG_3096-1](/simonejakobsen.dk/images/2018/04/IMG_3096-1.JPG)
 
-![IMG_3099-1](/images/2018/04/IMG_3099-1.JPG)
+![IMG_3099-1](/simonejakobsen.dk/images/2018/04/IMG_3099-1.JPG)
 
-![IMG_3113](/images/2018/04/IMG_3113.JPG)
+![IMG_3113](/simonejakobsen.dk/images/2018/04/IMG_3113.JPG)
 
-![IMG_3114](/images/2018/04/IMG_3114.JPG)
+![IMG_3114](/simonejakobsen.dk/images/2018/04/IMG_3114.JPG)
 
 Der er specielt én person, der blev talt meget om, og der er også lavet en film om ham og alt det han kæmpede for. Harvey Milk (Filmen hedder Milk). 
 Han var en amerikansk politikere og den første homoseksuelle person, der blev valgt til at være en del af San Francisco's byråd.
 
 Han kæmpede for en del minoritetsgrupper og blev ligesom centrum for den modstand der var til homoseksuelle, biseksuelle osv. Han gav alt, hvad han havde for at skabe flere rettigheder for dette samfund, og det kostede ham desværre livet. Han har alligevel opnået en helt speciel status for den homoseksuelle bevægelse - generelt i USA, men især i San Francisco. 
 
-![IMG_3104](/images/2018/04/IMG_3104.JPG)
+![IMG_3104](/simonejakobsen.dk/images/2018/04/IMG_3104.JPG)
 
 Malerier på muren - Harvey Milk Civil Rights Academy 
-![IMG_3101-1](/images/2018/04/IMG_3101-1.JPG)
+![IMG_3101-1](/simonejakobsen.dk/images/2018/04/IMG_3101-1.JPG)
 
 Malerier på muren - Harvey Milk Civil Rights Academy
-![IMG_3103-1](/images/2018/04/IMG_3103-1.JPG)
+![IMG_3103-1](/simonejakobsen.dk/images/2018/04/IMG_3103-1.JPG)
 
 Ham og hans partner startede en lille kamera butik på hovedgaden i Castro og den er der stadig - dog ikke længere som kamera butik
-![IMG_3125](/images/2018/04/IMG_3125.JPG)
+![IMG_3125](/simonejakobsen.dk/images/2018/04/IMG_3125.JPG)
 
 Set i Castro nabolaget...
 **Hæhæhæhæ**
-![IMG_3118](/images/2018/04/IMG_3118.JPG)
+![IMG_3118](/simonejakobsen.dk/images/2018/04/IMG_3118.JPG)
 
 Dette nabolag var simpelthen så interessant, fordi så mange mennesker har måtte lide under forfærdelige omstændigheder på grund af deres seksualitet. Her blev der ligesom gjort plads til alle, der gerne ville være en del af LGBT-samfundet (lesbian, gay, bisexual + transgender).
 **#CASTRODISTRICT**
@@ -171,15 +171,15 @@ Om søndagen brugte vi det meste af tiden på at snakke om forskellige sub-kultu
 
 Søndag morgen inden vores undervisning startede kl. 9, tog jeg et smut helt tæt på Golden Gate Bridge. Det var ubeskriveligt, fordi det (jeg har nævnt det før) ellers kun er noget man ser på film. 
 
-![IMG_3174](/images/2018/04/IMG_3174.JPG)
+![IMG_3174](/simonejakobsen.dk/images/2018/04/IMG_3174.JPG)
 
-![IMG_3146](/images/2018/04/IMG_3146.JPG)
+![IMG_3146](/simonejakobsen.dk/images/2018/04/IMG_3146.JPG)
 
-![IMG_3151](/images/2018/04/IMG_3151.JPG)
+![IMG_3151](/simonejakobsen.dk/images/2018/04/IMG_3151.JPG)
 
-![IMG_3180](/images/2018/04/IMG_3180.JPG)
+![IMG_3180](/simonejakobsen.dk/images/2018/04/IMG_3180.JPG)
 
-![IMG_3153](/images/2018/04/IMG_3153.JPG)
+![IMG_3153](/simonejakobsen.dk/images/2018/04/IMG_3153.JPG)
 
 Jeg har en idé om, at en bro er et tegn på noget nyt, en ny destination og det synes jeg er ret inspirerende. Især når man står helt tæt på og kan mærke vinden der suser om ørene og fornemme lyden af bølger!
 
@@ -187,23 +187,23 @@ Jeg bestilte en Uber for at køre imod Pier 39 og universitetet og min chauffør
 
 Det er måske lidt svært at se på billederne, men det var mega coolt og det vrimlede med turister - stakkels mennesker der bor på denne gade, haha!
 
-![IMG_3216](/images/2018/04/IMG_3216.JPG)
+![IMG_3216](/simonejakobsen.dk/images/2018/04/IMG_3216.JPG)
 
-![IMG_3226](/images/2018/04/IMG_3226.JPG)
+![IMG_3226](/simonejakobsen.dk/images/2018/04/IMG_3226.JPG)
 
-![IMG_3219](/images/2018/04/IMG_3219.JPG)
+![IMG_3219](/simonejakobsen.dk/images/2018/04/IMG_3219.JPG)
 
 En sidste ting, som jeg lige akkurat nåede at spotte inden turen gik mod lufthavnen, var en af de kendte "Cable Cars", som stadig køre i San Francisco's gader.
 Hvor sejt og charmerende er det lige?!
 
-![IMG_3229](/images/2018/04/IMG_3229.JPG)
+![IMG_3229](/simonejakobsen.dk/images/2018/04/IMG_3229.JPG)
 
 Det var vidst alt for denne gang!
 Jeg håber, at I fortsat har lyst til at læse med herinde.
 
 XO, Simone
 
-![Hjerte](/images/2018/04/Hjerte.jpg)
+![Hjerte](/simonejakobsen.dk/images/2018/04/Hjerte.jpg)
 
 
 

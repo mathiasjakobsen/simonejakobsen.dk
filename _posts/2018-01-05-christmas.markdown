@@ -6,7 +6,7 @@ date: '2018-01-05 03:25:15'
 
 ...IN NEW YORK CITY & BOSTON 
 
-![IMG_2327](/images/2018/01/IMG_2327.JPG)
+![IMG_2327](/simonejakobsen.dk/images/2018/01/IMG_2327.JPG)
 
 Glædelig (bag)jul herfra!
 Sikke én af slagsen, for mit vedkommende ihverfald. Det har været en meget anderledes oplevelse og min tålmodighed blev sat voldsomt på prøve, da jeg ikke måtte åbne mine gaver om aftenen den 24. december. 
@@ -17,8 +17,8 @@ Hele december måned har egentlig været meget det samme som vi oplever det i Da
 
 Jeg bagte dog pebbernødder, lavede æbleskiver og jeg havde købt chokolade julekalender til pigerne. Og Amy's mor havde købt et kalenderlys til mig. 
 
-![IMG_1839](/images/2018/01/IMG_1839.JPG) 
-![IMG_1840-1](/images/2018/01/IMG_1840-1.JPG)
+![IMG_1839](/simonejakobsen.dk/images/2018/01/IMG_1839.JPG) 
+![IMG_1840-1](/simonejakobsen.dk/images/2018/01/IMG_1840-1.JPG)
 
 Fredag den 22. december rejste Amy, pigerne og jeg selv til New York, hvor vi skulle tilbringe hele lørdag sammen med det meste af Amy's familie. 
 Vi boede på et super fint hotel, hvor vi (med næsen op imod vinduet) kunne se 
@@ -29,25 +29,25 @@ Men vanvittig fint og en virkelig sjov oplevelse. Vi stod i kø i et kvarter for
 
 
 
-![DSC00069](/images/2018/01/DSC00069.JPG)
+![DSC00069](/simonejakobsen.dk/images/2018/01/DSC00069.JPG)
 
-![DSC00087](/images/2018/01/DSC00087.JPG)
+![DSC00087](/simonejakobsen.dk/images/2018/01/DSC00087.JPG)
 
-![DSC00098](/images/2018/01/DSC00098.JPG)
+![DSC00098](/simonejakobsen.dk/images/2018/01/DSC00098.JPG)
 
-![DSC00113](/images/2018/01/DSC00113.JPG)
+![DSC00113](/simonejakobsen.dk/images/2018/01/DSC00113.JPG)
 
-![DSC00120](/images/2018/01/DSC00120.JPG)
+![DSC00120](/simonejakobsen.dk/images/2018/01/DSC00120.JPG)
 
-![DSC00123](/images/2018/01/DSC00123.JPG)
+![DSC00123](/simonejakobsen.dk/images/2018/01/DSC00123.JPG)
 
-![IMG_2281](/images/2018/01/IMG_2281.JPG)
+![IMG_2281](/simonejakobsen.dk/images/2018/01/IMG_2281.JPG)
 
-![DSC00148](/images/2018/01/DSC00148.JPG)
+![DSC00148](/simonejakobsen.dk/images/2018/01/DSC00148.JPG)
 
-![DSC00151](/images/2018/01/DSC00151.JPG)
+![DSC00151](/simonejakobsen.dk/images/2018/01/DSC00151.JPG)
 
-![IMG_2280](/images/2018/01/IMG_2280.JPG)
+![IMG_2280](/simonejakobsen.dk/images/2018/01/IMG_2280.JPG)
 
 Om aftenen havde Amy's forældre købt billetter til Radio City. Vi skulle ind of se "The Rocketts". Sikke en oplevelse! Desværre var det ikke tilladt at tage billeder, men det var et ubeskriveligt show med fantastiske dansere. 
 Utroligt, hvordan de kan svinge benene op og ned på samme tid, haha!
@@ -55,14 +55,14 @@ Utroligt, hvordan de kan svinge benene op og ned på samme tid, haha!
 På gåturen hjem (forresten regnede det HELE dagen, men var heldigvis stoppet da vi skulle gå tilbage til hotellet) krydsede vi Times Squre og Rockerfeller Center (igen) og fik lige chancen for at se juletræet med lysene tændt. 
 
 
-![IMG_2278-1](/images/2018/01/IMG_2278-1.JPG)
+![IMG_2278-1](/simonejakobsen.dk/images/2018/01/IMG_2278-1.JPG)
 
-![IMG_2286](/images/2018/01/IMG_2286.JPG)
+![IMG_2286](/simonejakobsen.dk/images/2018/01/IMG_2286.JPG)
 
-![DSC00177](/images/2018/01/DSC00177.JPG)
+![DSC00177](/simonejakobsen.dk/images/2018/01/DSC00177.JPG)
 
 #ErJegMedIAleneHjemme?
-![DSC00159](/images/2018/01/DSC00159.JPG)
+![DSC00159](/simonejakobsen.dk/images/2018/01/DSC00159.JPG)
 
 Søndag morgen hoppede vi i bilen og kørte mod Massachusetts. Det tog cirka 4 timer. Piece of Cake! 
 
@@ -70,7 +70,7 @@ Så startede juledagene hos Amy's forældre i Plymouth!
 
 XO, Simone
 
-![Hjerte](/images/2018/01/Hjerte.jpg)
+![Hjerte](/simonejakobsen.dk/images/2018/01/Hjerte.jpg)
 
 
 

@@ -20,7 +20,7 @@ For nogle uger siden snakkede jeg med Amy og hun fortalte at hendes søster havd
 
 Noget jeg tror der har hjulpet mig på vej er, at jeg har indset at den familie jeg har i Danmark og de venner jeg har i Danmark er de bedste af slagsen, og ligemeget hvor langt jeg er væk eller hvor længe, så er de (I) der også når jeg kommer hjem igen. Det hjælper til at give mig selv lov til at nyde og ikke bekymre mig så meget. Tak for jer, I er det bedste jeg har!
 
-![IMG_1154](/simonejakobsen.dk/images/2017/10/IMG_1154.JPG)
+![IMG_1154](/images/2017/10/IMG_1154.JPG)
 
 Speaking of, så var idag jo altså også en god dag. Jeg har været på tur med tre andre piger, en fra Frankrig, en fra Italien og en fra Mexico. Vi kørte en tur til Georgetown, som er en lille bjergby, i håb om at se efterårets smukke farver forvandle landskabet, men vi var sgu for sent på den. Der var ingen blade på træerne! Haha, sådan kan det jo gå. Køreturen hertil og byen ("byen" er måske så meget sagt) var dog stadig fantastisk smuk og charmerende. 
 
@@ -30,51 +30,51 @@ Vi endte med at køre videre op i bjergene til Guanella Pass, som ligger 11.670 
 Jeg tror jeg har fundet mit "happy place".
 
 Den smukkeste og mest charmerende lille by midt i bjergene! 
-![IMG_1144](/simonejakobsen.dk/images/2017/10/IMG_1144.JPG)
+![IMG_1144](/images/2017/10/IMG_1144.JPG)
 
-![IMG_1135](/simonejakobsen.dk/images/2017/10/IMG_1135.JPG)
+![IMG_1135](/images/2017/10/IMG_1135.JPG)
 
-![IMG_1142](/simonejakobsen.dk/images/2017/10/IMG_1142.JPG)
+![IMG_1142](/images/2017/10/IMG_1142.JPG)
 
-![IMG_1141](/simonejakobsen.dk/images/2017/10/IMG_1141.JPG)
+![IMG_1141](/images/2017/10/IMG_1141.JPG)
 
-![IMG_1143](/simonejakobsen.dk/images/2017/10/IMG_1143.JPG)
+![IMG_1143](/images/2017/10/IMG_1143.JPG)
 
-![IMG_1138](/simonejakobsen.dk/images/2017/10/IMG_1138.JPG)
+![IMG_1138](/images/2017/10/IMG_1138.JPG)
 
 Nå ja, vi er vel i det gamle "Wild West", ikke?
-![IMG_1173](/simonejakobsen.dk/images/2017/10/IMG_1173.JPG)
+![IMG_1173](/images/2017/10/IMG_1173.JPG)
 
 På vej op mod "togstationen" om man vil, hang der noget/nogen fra broen.
 Nogen tog det måske ikke så let som vi gjorde. Haha!
 (Jeg hørte da en mand sige i telefonen, at han altså havde ringet 911)
-![IMG_1150](/simonejakobsen.dk/images/2017/10/IMG_1150.JPG)
+![IMG_1150](/images/2017/10/IMG_1150.JPG)
 
 Toget som vi gerne ville have haft en tur i
-![IMG_1147](/simonejakobsen.dk/images/2017/10/IMG_1147.JPG)
+![IMG_1147](/images/2017/10/IMG_1147.JPG)
 
-![IMG_1146](/simonejakobsen.dk/images/2017/10/IMG_1146.JPG)
+![IMG_1146](/images/2017/10/IMG_1146.JPG)
 
-![IMG_1145](/simonejakobsen.dk/images/2017/10/IMG_1145.JPG)
+![IMG_1145](/images/2017/10/IMG_1145.JPG)
 
-![IMG_1151](/simonejakobsen.dk/images/2017/10/IMG_1151.JPG)
-
-Guanella Pass
-![IMG_1153](/simonejakobsen.dk/images/2017/10/IMG_1153.JPG)
+![IMG_1151](/images/2017/10/IMG_1151.JPG)
 
 Guanella Pass
-![IMG_1157](/simonejakobsen.dk/images/2017/10/IMG_1157.JPG)
+![IMG_1153](/images/2017/10/IMG_1153.JPG)
 
-![IMG_1161](/simonejakobsen.dk/images/2017/10/IMG_1161.JPG)
+Guanella Pass
+![IMG_1157](/images/2017/10/IMG_1157.JPG)
+
+![IMG_1161](/images/2017/10/IMG_1161.JPG)
 
 Midt i "pose change", hæhæ
-![IMG_1164](/simonejakobsen.dk/images/2017/10/IMG_1164.JPG)
+![IMG_1164](/images/2017/10/IMG_1164.JPG)
 
-![IMG_1165](/simonejakobsen.dk/images/2017/10/IMG_1165.JPG)
+![IMG_1165](/images/2017/10/IMG_1165.JPG)
 
 Nu vil jeg sige godnat (for nu er Amy kommet hjem, haha)!
 Håber I får en dejlig søndag.
 
 XO, Simone
 
-![Hjerte-2](/simonejakobsen.dk/images/2017/10/Hjerte-2.jpg)
+![Hjerte-2](/images/2017/10/Hjerte-2.jpg)

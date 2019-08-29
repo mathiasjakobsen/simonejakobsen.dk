@@ -19,32 +19,32 @@ Jeg fik så mange dejlige gaver af både familie og venner fra Danmark, men ogs�
 Resten af den 25. december var lidt som jeg kender den hjemme fra; hjemmehygge med julegodter, film og konstant gennemgang af de gaver man nu engang havde fået. 
 Super hyggeligt og afslappende, og så endte det faktisk med at sne en lille smule!
 
-![IMG_2302](/content/images/2018/01/IMG_2302.JPG)
+![IMG_2302](/images/2018/01/IMG_2302.JPG)
 
 Pigerne fik "plus plus" af julemanden. Vidste I at de er produceret i Danmark?
-![IMG_2307](/content/images/2018/01/IMG_2307.JPG)
+![IMG_2307](/images/2018/01/IMG_2307.JPG)
 
-![IMG_2305](/content/images/2018/01/IMG_2305.JPG)
+![IMG_2305](/images/2018/01/IMG_2305.JPG)
 
 Sadie sammen med Abuela (bedstemor på spansk)
-![DSC00188](/content/images/2018/01/DSC00188.JPG)
+![DSC00188](/images/2018/01/DSC00188.JPG)
 
 Mia sammen med Abuela
-![DSC00190](/content/images/2018/01/DSC00190.JPG)
+![DSC00190](/images/2018/01/DSC00190.JPG)
 
-![DSC00278](/content/images/2018/01/DSC00278.JPG)
+![DSC00278](/images/2018/01/DSC00278.JPG)
 
 De har vilde kalkuner i Massachusetts - det var (åbenbart) ret underholdende at se mig jagte dem for at få et billede, haha!
-![DSC00303](/content/images/2018/01/DSC00303.JPG)
+![DSC00303](/images/2018/01/DSC00303.JPG)
 
 Jeg blev sat til at lave en oste-kugle, eller noget...Det smagte lækkert!
-![DSC00287](/content/images/2018/01/DSC00287.JPG)
+![DSC00287](/images/2018/01/DSC00287.JPG)
 
 Hele familien (på nær pigernes fætter, Jack)
 Fra venstre er det AMy's søster (Kristin), Kanee (Kristin's veninde/kæreste), mig selv, Sadie, Mia, Amy, Abuela (Amy's mor), John (Amy's far) og Greg 
-![DSC00361](/content/images/2018/01/DSC00361.JPG)
+![DSC00361](/images/2018/01/DSC00361.JPG)
 
-![DSC00363](/content/images/2018/01/DSC00363.JPG)
+![DSC00363](/images/2018/01/DSC00363.JPG)
 
 Den 26. december var vi også bare hjemme hos Amy's forældre. Vi fik besøg af noget falsk familie (familie, der vidst ikke helt var rigtig familie). Det var super hyggeligt og de var selv ved at finde en au pair, så de havde ret mange spørgsmål de gerne ville stille mig.
 
@@ -53,19 +53,19 @@ Inden de kom, tog Amy's mor mig på rundtur i Plymouth. Det er en af de ældste 
 Byen var præget af Mayflower pilgrimme, dengang det stod på. Og indianere. 
 Jeg skal virkelig ikke gøre mig klog på Plymouth's historie, men byen var rigtig, rigtig hyggelig og ligger også direkte ud til vandet. I mean, what's not to like?
 
-![DSC00326](/content/images/2018/01/DSC00326.JPG)
+![DSC00326](/images/2018/01/DSC00326.JPG)
 
 En statue af en indianer. På bakken omkring blev indianerne begravet og idag er der en "kiste" længere henne, hvor det siges at alle knogler nu er gemt. 
-![DSC00329](/content/images/2018/01/DSC00329.JPG)
+![DSC00329](/images/2018/01/DSC00329.JPG)
 
-![DSC00324](/content/images/2018/01/DSC00324.JPG)
+![DSC00324](/images/2018/01/DSC00324.JPG)
 
-![DSC00335](/content/images/2018/01/DSC00335.JPG)
+![DSC00335](/images/2018/01/DSC00335.JPG)
 
-![DSC00341](/content/images/2018/01/DSC00341.JPG)
+![DSC00341](/images/2018/01/DSC00341.JPG)
 
 Plymouth Rock med årstallet 1620, som var året, hvor pilgrimmene "lanede" i Plymouth 
-![DSC00344](/content/images/2018/01/DSC00344.JPG)
+![DSC00344](/images/2018/01/DSC00344.JPG)
 
 Byen har helt utrolig meget historie og er meget besøgt i løbet af sommeren - også på grund af beliggenheden. Jeg forstår hvorfor!
 
@@ -73,4 +73,4 @@ Den 27. december var vores sidste dag i Massachusetts og jeg hoppede på en bus 
 
 XO, Simone
 
-![Hjerte-1](/content/images/2018/01/Hjerte-1.jpg)
+![Hjerte-1](/images/2018/01/Hjerte-1.jpg)
